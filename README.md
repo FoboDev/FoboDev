@@ -1,0 +1,8 @@
+- 👀 Kon'ichiwa! I'm frodev, just your average programming girl boss.
+- 👾 I've been programming since 2019 and have been enjoing all of it! (Well maybe not all of it, the dumb bugs.)
+- 😎 I know a couple of languages such as GDscript, JavaScript, a tad bit of python, and Lua(U).
+- 🌟 I also know HTML and CSS!
+- 🎮 My main focus in life is creating a succesful indie game title, along with growing a community on youtube!
+- 🎨 On the side I enjoy lots of other art forms, such as drawing manga, creating pixel art, and 3D modeling!
+-  🕹️ Some of my favorite games include Genshin Impact, Zenless Zone Zero, and almost any movement shooter.
+-  😁 Fun fact about me is I really love possums! Their so cute <3
